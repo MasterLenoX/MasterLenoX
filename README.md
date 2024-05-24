@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
       >> lenoxemperado@gmail.com
-      >> jamesoemgawolfe@gmail.com
+      >> jamesomegawolfe@gmail.com
       >> https://lenoxportfolio.web.app/
   
 <!---
